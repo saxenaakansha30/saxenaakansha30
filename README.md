@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @saxenaakansha30
 - 👀 I’m interested in Drupal Development and anything related to solving issues.
-- 🌱 I’m currently learning Guitar and Competitive Programming
+- 🌱 I’m currently learning Guitar and being consistent with routine.
 - 💞️ I’m looking to collaborate on anything interesting.
 - 📫 How to reach me saxenaakansha30@gmail.com
 
